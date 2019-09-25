@@ -1,0 +1,1 @@
+# PBOIF2-10118053-Latihan6-KambingStatic
